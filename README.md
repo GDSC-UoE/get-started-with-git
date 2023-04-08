@@ -1,1 +1,3 @@
-# get-started-with-git
+slone tech logins 
+she nizzle my dizzle 
+
